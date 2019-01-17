@@ -1,1 +1,2 @@
-a) Brian Morgan\nb) The Purge
+a) Brian Morgan  
+b) The Purge
